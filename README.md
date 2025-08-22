@@ -1,4 +1,4 @@
-# I think this subject will help me learn the basics and understand things better. I don’t just want to memorize stuff and I want to know why things work the way they do. I hope we will do both lessons and activities so I can practice what I learn.
+I think this subject will help me learn the basics and understand things better. I don’t just want to memorize stuff and I want to know why things work the way they do. I hope we will do both lessons and activities so I can practice what I learn.
 
 I also want to make projects and try things on my own, like small tasks or group work. I think practice will help me improve. I hope our tests will check how we solve problems and not just how much we remember. I also want to learn how to explain my answers well and make my work neat.
 
